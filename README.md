@@ -1,1 +1,2 @@
-# Aula_pensamentocomputacional oi  mamacitaaaaa
+# Aula_pensamentocomputacional
+tchutchatchucha
